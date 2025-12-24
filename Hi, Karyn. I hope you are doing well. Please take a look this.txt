@@ -1,0 +1,10 @@
+Hi Karyn, I hope you’re doing well.
+
+I have a small favor to ask. As you may know, last Friday my Gannett Microsoft account was locked, and I lost access to the GUP GitHub project and other related tools. Unfortunately, the issue hasn’t been resolved yet, and I’m still not sure of the exact cause.
+
+I’ve tried reaching out to Andy through Jeff (he’s a mutual contact who originally introduced me to Andy), but I haven’t been able to get direct confirmation so far. If you don’t mind, could you please share Andy’s email address so I can contact him directly to better understand the issue and help get it resolved?
+
+I’d really appreciate your help and consideration.
+
+Thank you,
+Lucas
